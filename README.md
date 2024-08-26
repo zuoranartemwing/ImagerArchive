@@ -1,5 +1,6 @@
 # ImgArchive
 <h4>This Is For Archive All My private Background Aliucord theme</h4>
+<b>Request Are Open Via My Discord DM</b>
 <a href="Friends.md">Discord Friends Request Background</a>
 <br>
 <br>
